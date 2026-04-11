@@ -1,4 +1,4 @@
-# ⟡ noa hendricks 
+# ⟡ hi! my name is noa 
 
    proficient in **HI** (Human Intelligence) .𖥔 ݁˖ and **ML** (Manual Learning) ✦
    
