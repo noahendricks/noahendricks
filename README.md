@@ -1,8 +1,8 @@
-⟡ noa hendricks 
+# ⟡ noa hendricks 
 
-  currently: building.
-
-  proficient in **HI** (Human Intelligence) .𖥔 ݁˖ and **ML** (Manual Learning) ✦
+   proficient in **HI** (Human Intelligence) .𖥔 ݁˖ and **ML** (Manual Learning) ✦
+   
+   currently: building.
 
   𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃
   
